@@ -1,2 +1,2 @@
 # zdaanie-paranormalne-
-tak
+super projekcik pozdrawaim
